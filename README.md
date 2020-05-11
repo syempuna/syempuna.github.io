@@ -1,2 +1,2 @@
 # syempuna.github.io
-my website :)
+sym.syamsuddin@gmail.com
